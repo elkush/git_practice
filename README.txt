@@ -6,3 +6,5 @@ Just a few tips how to look good when you code:
 4. Apply lipstick as beautiful as you are
 5. Put on a smile
 6. Keep smiling all day long
+
+Thanks for all of the tips! - Liz
