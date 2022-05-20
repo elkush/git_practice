@@ -8,3 +8,6 @@ Just a few tips how to look good when you code:
 6. Keep smiling all day long
 7. Drink enough of water and eat well
 8. Pay attention to details
+
+Thanks for all of the tips! - Liz
+
